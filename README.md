@@ -63,7 +63,7 @@ Content
 
 ## Contacts
 
-Feel free to [contact us](jyunyan.lu@gmail.com) if there any problem.
+Feel free to contact <jyunyan.lu@gmail.com> if there is any problem.
 
 ## Links
 
