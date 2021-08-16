@@ -69,4 +69,4 @@ Feel free to contact <jyunyan.lu@gmail.com> if there is any problem.
 
 Chinese introduction video on [Youtube](https://www.youtube.com/watch?v=PGjlXMC1zoY&t=5s)
 
-Chinese document [pdf](www.google.com)
+Chinese document [pdf](https://drive.google.com/file/d/1-2UAD2ETjn40ZIi8SHR4uhio5v_cPQa3/view?usp=sharing)
